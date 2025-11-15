@@ -1,2 +1,0 @@
-# MPEI
-# MPEI
